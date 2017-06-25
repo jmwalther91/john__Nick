@@ -1,2 +1,2 @@
-Kojima is God
+Kojima is God!
 
